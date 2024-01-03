@@ -105,7 +105,7 @@ I can't even imagine what the daily costs are to keep a fleet of that size deplo
 
 
 As a child, when learning about the history of the N@zi H0loc@ust, and reading stories from survivors, I used to wonder what I would 
-have done if I had lived in a society which was committing a g3n0c1de. I imagine many of you have asked yourself similar questions at 
+have done if I had lived in a society which was committing a g3n0c1de. I imagine many of you have asked yourselves similar questions at 
 various points in your lives. 
 
 
@@ -121,7 +121,7 @@ Here are some organizations	which I personally endorse- please consider supporti
 - [Doctors Without Borders](https://www.doctorswithoutborders.org/)
 
 I also encourage you to follow these P@lest1nian journalists on social media - they are risking their lives daily
-([scores of journalists](bit.ly/41JRSs7) have already been murd3red) to bring us on-the-ground coverage of the events as they unfold
+(as [scores of journalists](https://bit.ly/41JRSs7) have already been murd3red) to bring us on-the-ground coverage of the events as they unfold
 
 - [motaz_azaiza](https://instagram.com/motaz_azaiza)
 - [saleh_aljafarawi](https://instagram.com/saleh_aljafarawi)
