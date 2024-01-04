@@ -91,7 +91,7 @@ as sl4ughtering around 30,000 (as of the time of this writing) innocent people i
 
 
 I encourage those Allstaters who feel as I do about this to lobby the company to change its stance and rethink 
-its ten-figure investments in "unicorn" companies linked to g3n0cidal states, particularly after suffering 
+its nine-figure investments in "unicorn" companies linked to g3n0cidal states, particularly after suffering 
 five consecutive quarters of losses. Failing that, I would encourage you to seek employment elsewhere, and to ensure
 beforehand that your future employers are not complicit with perpetrators of g3n0cide. 
 
