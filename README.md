@@ -69,7 +69,7 @@ children were k1lled](https://twitter.com/mtracey/status/1719858059193794599) in
 children](https://twitter.com/yenisafakEN/status/1740340568935325947) with seeming impunity.
 
 
-I have tremendous respect for everyone I've worked with at Allstate. Without excpetion, I have found you all
+I have tremendous respect for everyone I've worked with at Allstate. Without exception, I have found you all
 to be a first-class group of professionals. I got my first job at age 16, which was 23 years ago, 
 for anyone curious, and this is the longest that I have ever stayed with a single organization since then. 
 I particularly enjoy this line of work because, as Data Scientists, we are uniquely empowered to pursue the truth 
