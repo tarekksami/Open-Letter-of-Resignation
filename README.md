@@ -9,7 +9,7 @@ possible (pending fulfillment of any outstanding contractual obligations) in pro
 On Nov. 1, it was announced that Allstate would become a partner, alongside Allianz, in a $265M "strategic investment" in Israeli-founded,
 US-headquartered NEXT Insurance, which has its R&D center in Kfar Saba, Israel. While the deal had likely been in the works for
 quite some time by that point, the timing of the announcement could not possibly have been more odious, as it came the day after Israel
-[openly acknowledged that it had intentionally carpet-b0mbed a refugee camp](https://bit.ly/48mzE2b) using American-supplied munitions, killing 
+[openly acknowledged that it had intentionally carpet-bombed a refugee camp](https://bit.ly/48mzE2b) using American-supplied munitions, killing 
 hundreds of innocent civilians in the process. Their alleged target was one single person, and Israel's public relations defense has primarily centered 
 around casting doubt on the precise number of civilians who were murdered in the attack.
 
