@@ -1,8 +1,8 @@
 Esteemed Colleagues,
 
 I am writing to inform you that after almost 4 years as a Data Scientist in Allstate's D3 Division, I intend to resign as soon as 
-possible (pending fulfillment of any outstanding contractual obligations) in pr0test of the company's support for Israel as it commits - 
-[as renowned Hol0c@ust scholar Raz Segal describes it in this interview](https://www.youtube.com/watch?v=ZWGGjLZNuyg) 
+possible (pending fulfillment of any outstanding contractual obligations) in protest of the company's support for Israel as it commits - 
+[as renowned Holocaust scholar Raz Segal describes it in this interview](https://www.youtube.com/watch?v=ZWGGjLZNuyg) 
 [and accompanying article in Jewish Currents](http://bit.ly/48tS94E) - "a textbook case of genocide" in Gaza.
 
 
@@ -33,29 +33,29 @@ At least we can both agree that collective punishment is, in principle, unfair.
 
 After the Oct 7 Hamas attacks, at the October 25 Connections meeting, Tom (rightly) took time out to address the situation and extend
 condolences to anyone who might be affected. By the time of the December 5 Town Hall meeting, when Tom next addressed
-the company as a whole, [more than 17,000 Palestinians had been killed](https://reut.rs/3S39Qm7), primarily by aerial b0mbardment 
+the company as a whole, [more than 17,000 Palestinians had been killed](https://reut.rs/3S39Qm7), primarily by aerial bombardment 
 (again, largely with the use of US-supplied weapons systems) - more than ten times as many people as were k1lled in the Oct. 7 attacks. 
 Yet Tom said nothing further about it. I suppose he didn't want to spoil anyone's holiday cheer.
 
 
-The use of [loaded language](https://en.wikipedia.org/wiki/Loaded_language) by the press and others around this gen0cid3 has been particularly infuriating. 
+The use of [loaded language](https://en.wikipedia.org/wiki/Loaded_language) by the press and others around this genocide has been particularly infuriating. 
 Words such as "war" and "conflict" are bandied about liberally, creating the utterly nonsensical illusion that Gaza has any line of
 defense against the billion dollar jet b0mbers being used against it. There is no more "conflict" going on in Gaza than among 
-livestock in an abattoir- there is only intentional, premeditated mass murd3r of a caged and starving population, which has overwhelmingly 
+livestock in an abattoir- there is only intentional, premeditated mass murder of a caged and starving population, which has overwhelmingly 
 impacted [children](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(23)02640-5/fulltext). 
 
 
 Another particularly ridiculous [thought-terminating-cliche](https://en.wikipedia.org/wiki/Thought-terminating_clich%C3%A9) 
-being deployed ad nauseum is the notion that this is all somehow excusable because Gazan c1vilians are being used as "human shields" by H@mas. 
-1sr@el has now b0mbed nearly every square inch of Gaza ([including places where the 1DF has explicitly instructed
+being deployed ad nauseum is the notion that this is all somehow excusable because Gazan c1vilians are being used as "human shields" by Hamas. 
+Israel has now b0mbed nearly every square inch of Gaza ([including places where the IDF has explicitly instructed
 refugees to evacuate](https://twitter.com/WarMonitors/status/1731986367897317520)). 
-Before the most recent phase of this g3n0c1d3 began, Gaza was the single most densely populated place on planet earth,
+Before the most recent phase of this genocide began, Gaza was the single most densely populated place on planet earth,
 with around 2.3 million people living in an area less than half the size of Naperville, Illinois (the place where I grew up).
 
 
-1srael loves to assure the world that it is doing "everything possible" to minimize c1vlian harm. [Yet 6 times as many
+Israel loves to assure the world that it is doing "everything possible" to minimize c1vlian harm. [Yet 6 times as many
 children were k1lled](https://twitter.com/mtracey/status/1719858059193794599) in Gaza in just the first 3 weeks of
-Israe'ls assault as during the entire Russian invasion of Ukraine up until that point. Their soldiers [openly gloat on social media about murd3ring
+Israe'ls assault as during the entire Russian invasion of Ukraine up until that point. Their soldiers [openly gloat on social media about murdering
 children](https://twitter.com/yenisafakEN/status/1740340568935325947) with seeming impunity.
 
 
@@ -77,13 +77,13 @@ That being said, anyone who wishes to stay in touch is encouraged to do so, and 
 If this letter garners enough attention, there will doubtless be various attempts made to discredit me personally,
 perhaps by finding people from my past to say bad things about me. Some of them may even be true - I'm far from a perfect
 person, and I've done my share of things of which I'm not particularly proud. But I'm quite sure that none of them are as bad
-as sl4ughtering around 30,000 (as of the time of this writing) innocent people in cold blood.
+as slaughtering around 30,000 (as of the time of this writing) innocent people in cold blood.
 
 
 I encourage those Allstaters who feel as I do about this to lobby the company to change its stance and rethink 
 its nine-figure investments in "unicorn" companies linked to genocidal states, particularly after suffering 
 five consecutive quarters of losses. Failing that, I would encourage you to seek employment elsewhere, and to ensure
-beforehand that your future employers are not complicit with perpetrators of g3n0cide. 
+beforehand that your future employers are not complicit with perpetrators of genocide. 
 
 
 Unfortunately, this is much easier said than done, as support for this genocide is the official policy of the Federal
